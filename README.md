@@ -1,2 +1,3 @@
-# friendly-enigma
-Der deutsche Vorreiter in künstlicher Intelligenz 
+# ᛋ ᛁ ᚷ ᛗ ᚨ ᚱ
+⚙️☰ SIGM4R ☰⚙️
+⛓️═══════⛓️
